@@ -1,7 +1,9 @@
 ### mehhovcki github account
-this is going to be main account for now, since github support is ignoring me.
+he/him - male
 
-https://e.z-bio/mehh / @mehhovcki
+main account for now
+
+https://e-z.bio/mehh / @mehhovcki
 
 <!--
 **mehh0vcki/mehh0vcki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
