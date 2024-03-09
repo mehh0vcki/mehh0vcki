@@ -3,6 +3,8 @@ he/him - male
 
 main account for now
 
+dumb stupid furry autoclaimer *(stinks)*
+
 https://e-z.bio/mehh / @mehhovcki
 
 <!--
